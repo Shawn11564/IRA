@@ -1,1 +1,1 @@
-https://hastebin.com/garulipifa.java
+https://pastebin.com/N8jagWtA
